@@ -1,0 +1,29 @@
+![alt text](https://www.economicshelp.org/wp-content/uploads/2014/12/house-price-to-earnings-ratio.png "Image result for uk house prices as proportion of median income")
+
+I think the housing crisis explains why we can be both over-taxed and underwhelmed by our public services.
+
+Housing is an overhead and a necessity. The cheaper it is, the better, because we all have finite resources, and the fewer of those we have to expend on necessities, like shelter and calories, the more resources we have for expending on other things. If that sounds awfully consumerist, think that we may use that headroom to get a lesser paid but more fulfilling job, or more leisure time. If the house is cheaper, we get the same house and we get more of something else we value. So we become wealthier, because we are able to consume more stuff we value.
+
+Admittedly, if houses were cheaper, maybe some people would compete each other to lower salaries, and they wouldn't be better off than now. Maybe there would be other consequences. But fundamentally, it cannot be a bad thing to make necessities cheaper. It wasn't with books, clothes, food, or anything else. There might be other problems with things being cheaper, like people consuming too much, but they are very likely second order effects to be dealt with separately.
+
+What's going on at the moment is that there is a massive transfer of wealth between various groups. From renters to people who own houses. From people on lower rungs of the property ladder to higher rungs. From people who got to the party later to those who arrived earlier. From the young to the old. This is a misallocation of resources because people don't have choices. If you get mugged, you hand over your wallet because you value your safety more. The money went because choice was removed. The more alternative choices people have, the more value is added if they trade. Here is an article on the [economic aspects of the housing crisis](https://capx.co/the-housing-crisis-an-act-of-devastating-economic-self-harm/).
+
+So, fundementally, generally speaking, if the cost of living was lower, people would have more money with which to support their families and require less state help. That has got to be a good thing. It would make any given amount of savings a better insulator against bad times. It would give people more choice with jobs, and make it easier to take risks.
+
+For the self-employed, a lower cost of living would make whatever funding they have last longer before their business becomes profitable, or make living from invoice to invoice less challenging. The chance of a business really taking off would be greater. This would increase innovation and ultimately productivity. The cost of living being high, that misallocation of capital, is a kind of friction, which prevents good things happening.
+
+As that friction takes its toll, it is not surprising if people look to the state to solve more of their problems. TODO See separate post on thoughts on the state. Ideally people should be self-sufficient, in that they get everything they need by giving other people what they want. Being able to provide for a family on the salary of a school dinner lady would be a big part of that.
+
+From the state's point of view, what would be good about making the cost of living lower would be that welfare spending would go further and tax would seem less of a burden for people.
+
+But governments like peace and quiet and for as few things as possible to be  in the 'hard' tray. For the things that are in the hard tray, they tend  to like kicking the can down the road and to upset as few people as  possible. The government would like it if house prices increased a little bit every year, because then it's never a mistake to buy one (the  price will only go up) no matter how late to the party. The only problem with this is that housing costs can't keep consuming a bigger and bigger proportion of the pay packet, and the size of deposit needed to buy can't keep increasing. Hence we see patches like the help to buy scheme, or in Japan's case 99 year mortgages you leave to your kids.
+
+The problem with leaving things in the hard tray is that problems only get worse. The more a house becomes a store of wealth, the more people are interested in protecting that. The more important it is to leave an inheritance to the kids. The more important it is not to build more houses because that deflates your wealth. When a mortgage was more achievable, it was less of a problem that there was little security for people renting, that they couldn't keep pets, paint walls, or have to deal with estate agents more than is necessary.
+
+But building more houses is a complicated business. There's local infrastructure to consider, such as roads, schools, and hospitals. But of course, all of that is more expensive than it should be to sort out because it all involves labour which must cover its high living costs.
+
+We could certainly make better use of town centres, building more apartment blocks suitable for young professionals pre-starting-families. And if we're really thinking outside of the box, what if we could make greenbelts more green by building super-eco-homes on them?
+
+It's not just a case of building more houses. Due to divorce and older people not downsizing, there are lots of people in houses bigger than they need.
+
+In summary, I think the house crisis is a massive issue and governments so far have not done enough about tackling it, for whatever reasons. It has knock-on consequences in almost every area of our lives. Western economies are struggling with low growth in living standards, and leaving problems unfixed increases the possibility of populism taking root, which will further compound our problems by pursuing the wrong solutions entirely.</p>
